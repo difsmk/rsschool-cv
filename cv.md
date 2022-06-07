@@ -1,5 +1,11 @@
 # Denis Rogunovich  
+
+***
+
+## Photo
 <a href="https://ibb.co/bQJxmCF"><img src="https://i.ibb.co/bQJxmCF/IMG-1738.jpg" alt="IMG-1738" border="0"></a>
+
+***
 
 ## Contacts
 * **[VK](https://vk.com/difsmk)**
