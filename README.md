@@ -1,1 +1,1 @@
-https://difsmk.github.io/rsschool-cv/cv
+https://difsmk.github.io/rsschool-cv/
